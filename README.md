@@ -1,1 +1,2 @@
-# NorGayShit
+# Not
+GayShit
